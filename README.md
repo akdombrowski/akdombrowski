@@ -1,4 +1,4 @@
-# 💥 Welcome to Anthony Dombrowski's 🤯 GitHub Profile 💥
+# 💥 Anthony Dombrowski's 🤯 GitHub Profile 💥
 
 - 🔭 I’m currently working on ...
 
