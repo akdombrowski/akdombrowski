@@ -10,9 +10,7 @@
 
   - creating more content
 
-    - [If you'd like to join collab....](https://linkedin.com/in/akdombrowski)
-
-    - [If you've got an idea...](https://linkedin.com/in/akdombrowski)
+    - [If you'd like to bounce around an idea or collaborate or just say hi....](https://linkedin.com/in/akdombrowski)
 
 
 - 🌱 I’m currently learning ...
